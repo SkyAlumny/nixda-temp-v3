@@ -13,6 +13,5 @@ LIKE THIS REPO IF YOU USE THIS PROJECT
 (This is pretty much outdated and i dont give support for this project!)
 
 
+https://github.com/user-attachments/assets/604ec3ba-f87d-423b-a70d-4374834ed755
 
-
-https://github.com/user-attachments/assets/39ae1972-4694-4683-98e1-7059e09edffb
